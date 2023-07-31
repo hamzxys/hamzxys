@@ -1,6 +1,5 @@
 
-------
-<img align="center" fit="fill" alt="GIF" src="https://l.top4top.io/p_224467elf0.gif" />
+------img align="center" fit="fill" alt="GIF" src="https://l.top4top.io/p_224467elf0.gif" />
 
 ------
 
