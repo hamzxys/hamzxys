@@ -1,9 +1,12 @@
 
-------img align="center" fit="fill" alt="GIF" src="https://l.top4top.io/p_224467elf0.gif" />
+------
+
+<img align="center" fit="fill" alt="GIF" src="https://l.top4top.io/p_224467elf0.gif" />
 
 ------
 
 ### ```Support me``` ☎️
+
 
 <p align="center">
   <a href="https://www.instagram.com/invites/contact/?i=1w35vvmfgxbvq&utm_content=kgsgj5z"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/> 
